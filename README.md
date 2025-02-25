@@ -1,0 +1,2 @@
+# 1Ariketa
+Giteko ariketak
